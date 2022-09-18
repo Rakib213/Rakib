@@ -1,7 +1,7 @@
 ### Hi there 👋, my name is Rakib
-####9FB61A  I am Student of American International University-Bangladesh
+### I am Student of American International University-Bangladesh
 I've always loved Playing Football and computer video games. Even as a kid, Dickens captured my imagination more thoroughly than the Alif Laila stories or anything else. As an undergraduate at, American International University-Bangladesh.
-
+https://www.facebook.com/photo/?fbid=1043184876477667&set=a.144441929685304
 Skills: C/C++/C#/JAVA
 
 - 🔭 I’m currently working on  A Student 
